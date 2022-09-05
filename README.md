@@ -1,2 +1,2 @@
-# -Kun-Fu-
+# 付坤
 Master student in UESTC. Interested in emotion regulation and cognitive control. A ping-pong and badminton lover.
